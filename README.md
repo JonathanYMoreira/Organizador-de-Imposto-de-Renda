@@ -148,7 +148,7 @@ Neste desafio pratiquei:
 ## 👤 Autor
 
 **Jonathan Moreira**
-- LinkedIn: [seu-perfil](https://www.linkedin.com/in/jonathangmoreira/)
+- LinkedIn: [Link Aqui](https://www.linkedin.com/in/jonathangmoreira/)
 
 ---
 
